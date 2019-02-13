@@ -1,3 +1,3 @@
 # Elgaardsutter
 
-øvelse
+noob
